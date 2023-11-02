@@ -1,0 +1,1 @@
+# Random_input_for_CST_LAB1
